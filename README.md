@@ -1,6 +1,6 @@
 ## Hey there, I'm Adam! 👋
 
-Hailing from the Isle of Man, I am a 19 year old student, barista, team leader... *I wear a lot of different hats*!
+Hailing from the Isle of Man, I am a 20 year old student, barista, team leader... *I wear a lot of different hats*!
 
 ### Quick facts
 Here are some quick facts about me:
